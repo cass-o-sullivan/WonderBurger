@@ -1,3 +1,3 @@
 top bun
-beef patty - added by cass
+veggie burger - added by EVIL cass
 bottom bun
